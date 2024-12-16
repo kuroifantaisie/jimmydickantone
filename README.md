@@ -1,2 +1,0 @@
-# jimmydickantone
-My public portfolio
